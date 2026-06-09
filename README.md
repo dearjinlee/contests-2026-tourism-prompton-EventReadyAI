@@ -1,0 +1,1 @@
+# contests-2026-tourism-prompton-EventReadyAI
